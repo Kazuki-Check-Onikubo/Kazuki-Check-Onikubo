@@ -4,4 +4,5 @@
 ---
 
 #### 最近のちぇっく
-ちぇっくはNothingPhone(2)に乗り換えた...（iPhone8はまだ現役）　　
+ちぇっくはNothingPhone(2)に乗り換えた...
+（iPhone8はまだまだ現役）　　
